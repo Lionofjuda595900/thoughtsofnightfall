@@ -1,2 +1,4 @@
 # thoughtsofnightfall
-Gnostic Occult of seeking the truth of humanity through monastic knowledge
+Truth of the human condition 
+Devine Insanity 
+Truth as it is
